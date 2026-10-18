@@ -1,1 +1,1 @@
-cdijk.inferno-client.xyz
+cdijk.hyper-cheatz.xyz
